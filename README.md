@@ -1,3 +1,3 @@
 # AO™
 
-*Anthony O. Osawere (AO™) is a solution developer and entrepreneur from West Africa, Nigeria.*
+*Anthony O. (AO™) is a software engineer, consultant, solution developer and entrepreneur from West Africa, Nigeria.*
